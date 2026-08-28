@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NULM921005MJCXRR07
+NULM921005MJCXRR07
